@@ -14,7 +14,11 @@ I love it though.
 
 Rememeber to always take your time and READ THE DIRECTIONS.
 The biggest mistakes are made when we are rushing to solve the problem.
-More times than not, that mentality cretaes more problems.
+More times than not, that mentality creates more problems.
+Find peace in the madness.
+
+Take the proper time to understand the task.
+Take the time to prepare the solution.
 
 Be clean.
 Be concise.
